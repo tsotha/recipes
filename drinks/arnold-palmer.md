@@ -1,4 +1,4 @@
-# Arnold Parmer
+# Arnold Palmer
 
 ## Ingredients
 - San Pellegrino Lemonade
