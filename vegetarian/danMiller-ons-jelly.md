@@ -16,3 +16,6 @@
 - Increase heat to high, and bring the mixture to a full rolling boil. Boil, stirring often, until the mixture reaches 220 degrees F (105 degrees C).
 - Transfer to hot sterile jars, leaving 1/4 to 1/2 inch headspace, and seal. Process in a water bath.
 - If the jam is going to be eaten right away, don't bother with processing, and just refrigerate.
+
+##### Citation
+- http://allrecipes.com/recipe/strawberry-jam/
