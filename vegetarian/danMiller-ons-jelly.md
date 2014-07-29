@@ -17,5 +17,7 @@
 - Transfer to hot sterile jars, leaving 1/4 to 1/2 inch headspace, and seal. Process in a water bath.
 - If the jam is going to be eaten right away, don't bother with processing, and just refrigerate.
 
+![Jelly Image](http://jwtalk.net/forums/uploads/monthly_07_2013/post-1015-0-27272900-1374801930.jpg "Jelly Image")
+
 ##### Citation
 - http://allrecipes.com/recipe/strawberry-jam/
