@@ -1,0 +1,19 @@
+#mriccelli75's Family Jelly Pancakes
+
+##Ingredients
+
+- Butter
+- Pancake Mix
+- Milk
+- Strawberry Jelly
+- Bananas
+
+##Directions
+
+- Combine milk with vinegar in a medium bowl and set aside for 5 minutes to "sour".
+
+- Combine flour, sugar, baking powder, baking soda, and salt in a large mixing bowl. Whisk egg and butter into "soured" milk. Pour the flour mixture into the wet ingredients and whisk until lumps are gone.
+
+- Heat a large skillet over medium heat, and coat with cooking spray. Pour 1/4 cupfuls of batter onto the skillet, and cook until bubbles appear on the surface. Flip with a spatula, and cook until browned on the other side.
+
+These are great.
