@@ -1,5 +1,5 @@
 # danMiller-ons
 - Full Name: Dan Miller
 
-## Recipe
+## Recipes
 - Strawberry Jelly
